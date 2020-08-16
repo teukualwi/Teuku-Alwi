@@ -1,2 +1,2 @@
 # Teuku-Alwi
-poditif thingking
+positif thinking
